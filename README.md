@@ -1,2 +1,0 @@
-# aplikasi-jual-beli-shooja
--
